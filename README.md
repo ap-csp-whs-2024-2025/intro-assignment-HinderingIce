@@ -10,6 +10,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
+* Something interesting about me is I'm a student
+* Ask Mr. Vu anything: How many different language you know?
 * List your sports and extracurriculars you participate in
