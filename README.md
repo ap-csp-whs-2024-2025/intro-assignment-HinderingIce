@@ -12,4 +12,4 @@
 Answer the questions below
 * Something interesting about me is I'm a student
 * Ask Mr. Vu anything: How many different language you know?
-* List your sports and extracurriculars you participate in
+* List your sports and extracurriculars you participate in: I do nothing
